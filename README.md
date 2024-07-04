@@ -1,5 +1,5 @@
 ![WhatsApp Image 2024-06-17 at 14 28 56 (1)](https://github.com/ieeeufc/ieeeufc/assets/136080025/9748aa9c-7f51-44b4-8ab0-5a176446e36e)
-# 💫 About Me:
+# 💡 Sobre nós:
 
 **O que é?**
 
