@@ -1,6 +1,18 @@
 ![WhatsApp Image 2024-06-17 at 14 28 56 (1)](https://github.com/ieeeufc/ieeeufc/assets/136080025/9748aa9c-7f51-44b4-8ab0-5a176446e36e)
 # 💫 About Me:
-- O que é?<br><br>É uma organização estudantil associada à Universidade Federal do Ceará e tem como objetivo elaborar<br>projetos nas áreas de engenharia e exatos em prol da comunidade acadêmica e da comunidade em geral.<br><br>- Missão<br><br>Promover atividades de inovação tecnológica, humanitária e educativa que contribuem para o<br>crescimento pessoal, profissional e acadêmico da comunidade em geral. Assim, incentivando a excelência,<br>fortalecendo o vínculo com o mercado de trabalho e agregando valor à universidade e ao IEEE.<br><br>- Visão<br><br>Até o final de 2024, ser reconhecido, por meio de premiações da Seção Nordeste, por sua excelência<br>em conhecimentos técnicos, bem como aspectos humanitários e contato com as empresas, de formar a<br>agregar conhecimento e estimular a interdisciplinaridade dentro do Ramo Estudantil.
+
+**O que é?**
+
+É uma organização estudantil associada à Universidade Federal do Ceará e tem como objetivo elaborar projetos nas áreas de engenharia e exatos em prol da comunidade acadêmica e da comunidade em geral.
+
+🚀 **Missão**
+
+Promover atividades de inovação tecnológica, humanitária e educativa que contribuem para o crescimento pessoal, profissional e acadêmico da comunidade em geral. Assim, incentivando a excelência, fortalecendo o vínculo com o mercado de trabalho e agregando valor à universidade e ao IEEE.
+
+🎯 **Visão**
+
+Até o final de 2024, ser reconhecido, por meio de premiações da Seção Nordeste, por sua excelência em conhecimentos técnicos, bem como aspectos humanitários e contato com as empresas, de forma a agregar conhecimento e estimular a interdisciplinaridade dentro do Ramo Estudantil.
+
 
 
 ## 🌐 Socials:
